@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @WR2007
+- 👋 Hi, I’m WR
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing, because i can't learn nothing
 - 💞️ I’m looking to collaborate on.....me?....
